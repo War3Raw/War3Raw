@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @War3Raw
+- 👀 I’m interested in coding as a career and to create apps and websites
+- 🌱 I’m currently almost finish learning javascript & PHP. I currently know HTML, CSS, & Bootstrap
+- 💞️ I’m looking to collaborate on projects that need assistance
+- 📫 How to reach me SnapChat👻-war3raw , Instagram📸-war_iii , twitter🐣-war3raw_
+--->
